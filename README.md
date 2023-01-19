@@ -5,7 +5,7 @@ This github contains screenshots about some overlays and osu skins i did, its li
 
 ![Menu](https://cdn.discordapp.com/attachments/1065651350869913601/1065651422827401276/screenshot618.jpg)
 
-![Mods](https://cdn.discordapp.com/attachments/1065651350869913601/1065651423112601750/screenshot619.jpg}
+![Mods](https://cdn.discordapp.com/attachments/1065651350869913601/1065651423112601750/screenshot619.jpg)
 
 ![Ranking Panel](https://cdn.discordapp.com/attachments/1065651350869913601/1065651423569789019/screenshot620.jpg)
 
