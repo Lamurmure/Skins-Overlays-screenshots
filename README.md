@@ -7,11 +7,11 @@ This github contains screenshots about some overlays and osu skins i did, its li
 Links on skins name are not a download links, theses are video links, i usually dont share my skin but you can still try asking xd 
 
 
-Twitch: **https://www.twitch.tv/boulbamed**
+- Twitch: **https://www.twitch.tv/boulbamed**
 
-Twiter: [**@LSD_Ezleran**](https://twitter.com/LSD_Ezleran)
+- Twiter: [**@LSD_Ezleran**](https://twitter.com/LSD_Ezleran)
 
-Discord: **Boulbamed Le Hamster/Lamurmure_#7122**
+- Discord: **Boulbamed Le Hamster/Lamurmure_#7122**
 
 
 ##  [**- Youmou Konpaku V2 -** ](https://youtu.be/wPaJ_zZFD2Q)| One of the firsts skins i did 
