@@ -14,7 +14,7 @@ Links on skins name are not a download links, theses are video links, i usually 
 - Discord: **Boulbamed Le Hamster/Lamurmure_#7122**
 
 
-##  [**- Youmou Konpaku V2 -** ](https://youtu.be/wPaJ_zZFD2Q)| One of the firsts skins i did 
+##  [**- Youmou Konpaku V2 -** ](https://youtu.be/wPaJ_zZFD2Q)
 
 
 ![Menu](https://cdn.discordapp.com/attachments/1065651350869913601/1065651422827401276/screenshot618.jpg)
@@ -26,6 +26,28 @@ Links on skins name are not a download links, theses are video links, i usually 
 ![Gameplay](https://cdn.discordapp.com/attachments/1065651350869913601/1065651423821451304/screenshot621.jpg)
 
 
+
+##  [**Quezac**](https://youtu.be/tEt0Hd0Gasw) | Mixed gameplay but my first menu
+
+![Menu](https://cdn.discordapp.com/attachments/1065651350869913601/1067458774589243482/screenshot624.jpg)
+
+![Mods](https://cdn.discordapp.com/attachments/1065651350869913601/1067458774798970990/screenshot625.jpg)
+
+![Ranking Panel](https://cdn.discordapp.com/attachments/1065651350869913601/1067458774341783652/screenshot626.jpg)
+
+![Gameplay](https://cdn.discordapp.com/attachments/1065651350869913601/1067458774996095147/screenshot627.jpg)
+
+
+
+## [**- Youmou Konpaku V1 -**](https://www.youtube.com/watch?v=xhAx-Z11QWY) | My very first 100% handmade skin xd
+
+![Menu](https://cdn.discordapp.com/attachments/1065651350869913601/1067460567146704937/screenshot628.jpg)
+
+![Mods](https://cdn.discordapp.com/attachments/1065651350869913601/1067460567637442680/screenshot629.jpg)
+
+![Ranking Panel](https://cdn.discordapp.com/attachments/1065651350869913601/1067460568077832292/screenshot630.jpg)
+
+![Gameplay](https://cdn.discordapp.com/attachments/1065651350869913601/1067460568459522108/screenshot631.jpg)
 
 ## **Youmu cam overlay**
 
