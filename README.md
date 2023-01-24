@@ -34,3 +34,7 @@ Discord: **Boulbamed Le Hamster/Lamurmure_#7122**
 ![](https://cdn.discordapp.com/attachments/1065651350869913601/1067450481477156976/image.png)
 
 ![](https://cdn.discordapp.com/attachments/1065651350869913601/1067449967083524127/image.png)
+
+## **Snowy one (dont really have a name :'O)**
+
+![](https://cdn.discordapp.com/attachments/1065651350869913601/1067451898040438875/ezgif-3-37bffac089.gif)
