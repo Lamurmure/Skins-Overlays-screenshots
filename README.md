@@ -35,6 +35,7 @@ Discord: **Boulbamed Le Hamster/Lamurmure_#7122**
 
 ![](https://cdn.discordapp.com/attachments/1065651350869913601/1067449967083524127/image.png)
 
-## **Snowy one (dont really have a name :'O)**
+## **Snowy one (dont really have a name :'O)** [Image wont load, i apologise]
+There's a  link to the gif instead
 
-![](https://cdn.discordapp.com/attachments/1065651350869913601/1067451898040438875/ezgif-3-37bffac089.gif)
+[GIF](https://cdn.discordapp.com/attachments/1065651350869913601/1067451898040438875/ezgif-3-37bffac089.gif)
