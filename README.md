@@ -1,8 +1,11 @@
 # Lamurmure/Boulbamed osu skins and overlays 
 
 This github contains screenshots about some overlays and osu skins i did, its like a portfolio :O
-
+```diff
++ IMPORTANT PLEASE READ!! 
+```
 Links on skins name is not a download link, its a video link, i usually dont share my skin but you can still try asking xd 
+
 
 Twitch: **https://www.twitch.tv/boulbamed**
 
