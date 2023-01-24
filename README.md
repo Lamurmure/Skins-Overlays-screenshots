@@ -23,3 +23,14 @@ Discord: **Boulbamed Le Hamster/Lamurmure_#7122**
 ![Gameplay](https://cdn.discordapp.com/attachments/1065651350869913601/1065651423821451304/screenshot621.jpg)
 
 [[Video](https://youtu.be/wPaJ_zZFD2Q)]
+
+## **Youmu cam overlay**
+
+![](https://cdn.discordapp.com/attachments/1065651350869913601/1067445671218643024/image.png)
+
+
+## **LSD Dream Emulator & Steins;Gate overlay (experimental)**
+
+![](https://cdn.discordapp.com/attachments/1065651350869913601/1067450481477156976/image.png)
+
+![](https://cdn.discordapp.com/attachments/1065651350869913601/1067449967083524127/image.png)
